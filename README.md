@@ -1,2 +1,2 @@
 # hello-kitty
-Good luck, ledi
+Good luck, miledy
